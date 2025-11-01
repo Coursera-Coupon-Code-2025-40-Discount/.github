@@ -1,4 +1,4 @@
-# Coursera Discount & Coupon [Oct 2025]: 40% OFF Promo
+# Coursera Discount & Coupon [Nov 2025]: 40% OFF Promo
 
 Looking for a legit Coursera Discount? Coursera's Latest Deal gives you **20% off** on Coursera Plus Annual plan, so you only pay **$319.20 instead of $399**. For 3 months, you get **40% off**, so you only spend $35.40 a month.
 
@@ -19,7 +19,7 @@ If you're new to Coursera, you can also get a 7-day free trial and a 100% free c
     <a href="http://bit.ly/45poppB" target="_blank"><img src="https://buddyforhelp.com/wp-content/uploads/2025/08/coursera-discount-code-2.png" alt="Coursera Coupon Code"/></a>
 </div><be>
 
-## Latest Coursera Discount Coupon & Offers (October 2025)
+## Latest Coursera Discount Coupon & Offers (November 2025)
 
 This month's Coursera Plus Discount offers **up to 40% OFF**, free Coursera courses, and trial access, all of which are available throughout the world.
 
